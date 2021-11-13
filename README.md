@@ -1,2 +1,1 @@
 - 📫 You can contact me by e-mail: pesok505@mail.ru
-- I do the job cheaply
